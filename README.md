@@ -2,6 +2,6 @@ New Text
 Some New Text Added Without Any Deletions
 Just Adding Some New Stuff
 
-![AltText](https://static-cdn.jtvnw.net/jtv_user_pictures/hsdogdog-profile_image-5550ade194780dfc-300x300.jpeg)
+![AltText](https://media.giphy.com/media/vVzH2XY3Y0Ar6/giphy.gif)
 
 
